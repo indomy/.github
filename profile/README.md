@@ -1,4 +1,4 @@
-## Ketentuan Nilai Peraikan Nilai ATS
+## Ketentuan Nilai Perbaikan Nilai ATS
 
 1. Membuat konten youtube (nilai dari feedback maksimal 25)
 2. Membuat postingan di blogger indomy(nilai feedback maksimal 25)
